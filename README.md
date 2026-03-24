@@ -7,7 +7,7 @@
 
 ---
 
-# ⚠️ PUBLIC NOTICE OF SOFTWARE COPYRIGHT INFRINGEMENT
+# ⚠️ PUBLIC NOTICE OF WILLFUL SOFTWARE COPYRIGHT INFRINGEMENT AND SOFTWARE THEFT
 
 ## TorahBibleCodes.com vs. Aharon (Ron/Roni) Zbaida — bible-codes.github.io / JerusalemHills.com
 
